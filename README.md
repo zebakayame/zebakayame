@@ -15,7 +15,7 @@
 <br>-Proffisional Procastinator
 <br>-Big scary dark humor
 <br>-But friendly and nice シ
-<br>-<i>Anime....</i>
+<br>-*Anime....*
 <br>And there is nothing more!
 <br> 
 <br>
